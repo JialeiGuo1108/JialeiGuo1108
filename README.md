@@ -5,7 +5,7 @@
 - 🔍 I'm currently looking for a job
 - 🏙️ Background in **Urban & Regional Planning**, now transitioning into **data-driven spatial analysis & AI**
 - 🔍 Passionate about using data to understand cities — from transport systems to rental markets
-- 🌏 Bilingual: fluent in **Chinese & English** (full academic/professional working experience at UCL)
+- 🌏 Full English academic experience at UCL (CET-7)
 - 📫 How to reach me: Email: z19991108@126.com | WeChat: z630368828
   
 ## 🎓 Education
